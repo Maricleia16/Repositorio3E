@@ -6,5 +6,5 @@ _Entre em contato comigo_ ⬇️
 
 000011006963520sp@al.educacao.sp.gov.br
 
-![]([image](https://github.com/Maricleia16/Repositorio3E/assets/170953464/f545fedb-83da-45e2-8215-b9205b0a90f5)
+![](frasesdemaloka.com/wp-content/uploads/2021/10/frases-positivas-para-fotos-frases-de-maloka-1.jpg)
 
